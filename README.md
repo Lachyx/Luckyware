@@ -1,3 +1,3 @@
 # Luckyware
 
-https://discord.com/invite/Luckyware
+https://discord.com/invite/wmrgSURuCk
